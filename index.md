@@ -4,22 +4,22 @@
 <p>◎ • 视 频： 
 <a href="http://hxz.lexmarktr.com/" target="_blank">网址一</a> 　 
 <a href="http://hqw.lexmarktr.com/" target="_blank">网址二</a> 　 
-<a href="http://hqw.lexmarktr.com/b.html" target="_blank">网址三</a>
+<a href="http://hvz.lexmarktr.com/b.html" target="_blank">网址三</a>
 <a href="https://yadi.sk/d/d0sUeAOpal3njw" target="_blank">　• 云下载 </a></p>
 <p>◆ new! 分 享 网 址（* 请 收 藏）： <a href="http://hvz.lexmarktr.com/a.html">https://b.itpc.ga/</a></p>
 
 <p>◎ • 小 站：  
 <a href="http://hxz.lexmarktr.com/f.html" target="_blank">网址一</a> 　 
 <a href="http://hqw.lexmarktr.com/h.html" target="_blank">网址二</a> 　 
-<a href="http://hqw.lexmarktr.com/k/" target="_blank">网址三</a></p>
+<a href="http://hvz.lexmarktr.com/k/" target="_blank">网址三</a></p>
 <p>◎ • 翻 墙 软 件 ：  
 <a href="http://hxz.lexmarktr.com/ff/" target="_blank">网址一</a> 　 
 <a href="http://hqw.lexmarktr.com/s/read/a1_nd.html" target="_blank">网址二</a> 　 
-<a href="http://hqw.lexmarktr.com/ff/index.html" target="_blank">网址三</a></p>
+<a href="http://hvz.lexmarktr.com/ff/index.html" target="_blank">网址三</a></p>
 <p>◎ • 每 日 新 闻：  
 <a href="http://hxz.lexmarktr.com/day/" target="_blank">网址一</a> 　 
 <a href="http://hqw.lexmarktr.com/day/" target="_blank">网址二</a> 　 
-<a href="http://hqw.lexmarktr.com/day/index.html" target="_blank">网址三</a></p>
+<a href="http://hvz.lexmarktr.com/day/index.html" target="_blank">网址三</a></p>
 <p>◎ • 短 波 分 享：  
 <a href="http://hxz.lexmarktr.com/h/" target="_blank">网址一</a> 　 
 <a href="http://hqw.lexmarktr.com/h/" target="_blank">网址二</a> 　 
@@ -27,7 +27,7 @@
 <p>◎ • 九 评.三 退：  
 <a href="http://hxz.lexmarktr.com/t/" target="_blank">网址一</a> 　 
 <a href="http://hqw.lexmarktr.com/v2/index.html" target="_blank">网址二</a> 　 
-<a href="http://hqw.lexmarktr.com/tt/index.html" target="_blank">网址三</a> 　</p>
+<a href="http://hvz.lexmarktr.com/tt/index.html" target="_blank">网址三</a> 　</p>
 <p>◎ • (E2_视频/语音)《九 评》视频/语音: 
 <a href="http://hqw.lexmarktr.com/7738.html" target="_blank">网址一</a> 　 
 <a href="http://hqw.lexmarktr.com/7614.html" target="_blank">网址二</a> 　 
